@@ -1,0 +1,1 @@
+# ayajirinko.github.io
